@@ -1,0 +1,77 @@
+# ≠ME – Marcato
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Na na na na na na na na
+Da la la la la la
+Na na na na
+Na na na na na na na na
+Da la la la la la
+Na na na na
+Na na na na na na na na
+Da la la la la la
+Na na na na
+Na na na na na na na na
+Da la la la la la
+Na na na na
+子供騙し You're bluffing
+そうねこのままならI'll drop out
+君のターン始めましょう
+お決まりセリフならIt's all over
+(Ticktack 聴こえ)
+時計か鼓動か
+(Ring ring 鳴らせ)
+掻き乱して
+夜は待ってくれないわ
+狼は無駄吠え
+その私はフェイクよ
+真実なら Winner
+信じない方がいい Liar
+AIじゃまだ追い付かない
+試してみて
+触れたいなら
+届かないでしょう
+許可してない Stop it
+So just keep waiting
+騙せてない Real
+しちゃいたい Cry バイバイ
+子供じゃない私の横にいたいのなら
+響かせて Marcato
+ちゃんと言って
+Na na na na na na na na
+Da la la la la la
+Na na na na
+Na na na na na na na na
+Da la la la la la
+Na na na na
+光のない夜空では
+目立ちはみ出してる So sad
+輝き増しすぎたみたい
+元に戻せるの?
+私を
+高嶺に生きたって
+So you all dig me
+騙してない Real
+君は Clash clash clash clash
+遠すぎて 手を伸ばしてもUnfeasible
+私には 君じゃない
+エキストラ
+Na na na na na na na na
+Da la la la la la
+Na na na na
+Na na na na na na na na
+Da la la la la la
+Na na na na
+Na na na na na na na na
+Da la la la la la
+Na na na na
+Na na na na na na na na
+Da la la la la la
+Na na na na
+子供騙し
+You' re bluffing
+そうね このままなら
+I'll drop out
+伝えてよ Marcato
+```
